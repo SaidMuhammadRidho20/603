@@ -1,2 +1,2 @@
-# 603
-yryfyru6fut
+# PRAKTIKUM 1 DAN ASS
+
