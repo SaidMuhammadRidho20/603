@@ -1,2 +1,1 @@
-# PRAKTIKUM 1 DAN ASS
 
